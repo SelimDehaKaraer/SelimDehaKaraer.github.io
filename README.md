@@ -1,1 +1,0 @@
-# SelimDehaKaraer.github.io
